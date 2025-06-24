@@ -9,7 +9,7 @@ Conhecimento intermediário em inglês.
 Formado em Técnico em Administração (CEDUP)
 Cursando Técnico em Desenvolvimento de Sistemas (4/4) (SENAI)
 
-Auxiliar de Escritório - Materiais/Angeloni 10/07/2025 - Atualmente
+Auxiliar de Escritório - Materiais/Angeloni 07/10/2025 - Atualmente
 
 Colaborador do projeto didático website 'CADÊ' como projeto de final de semestre. (SENAI)
 Colaborador do projeto didático website 'CADÊ NDI' como projeto de final de semestre. (SENAI)
